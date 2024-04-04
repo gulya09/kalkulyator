@@ -1,3 +1,4 @@
+
 Sardorga yordam bering.
 ![image](https://github.com/muslimbek77/exam-calculator/assets/48023644/442aa063-0115-4257-908c-19ec63292ff4)
 
